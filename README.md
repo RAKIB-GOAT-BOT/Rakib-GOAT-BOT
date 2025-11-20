@@ -266,7 +266,7 @@ If you find this project helpful:
 |---|---|---|
 | CYBER ULLASH | SAHADAT | MAHBUB SHAON |
 | Sheikh Tamim | ☢️ | ⚠️ |
-| 🇧🇩 | Grandpa EJ | ✅ |
+| 🇧🇩 | Grandpa EJ | Rakib Adil |
 <div align="center">
 —͟͟͞͞𝐂𝐘𝐁𝐄𝐑 ☢️_𖣘 -𝐁𝐎𝐓 ⚠️ 𝑻𝑬𝑨𝑴_ ☢️
 </div>
